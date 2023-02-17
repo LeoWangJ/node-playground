@@ -1,0 +1,1 @@
+hello my friends, can help me to translate uppercase?
